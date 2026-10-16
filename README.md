@@ -1,4 +1,3 @@
 ﻿# Python-Class
 # Python-Class
-‣祐桴湯䌭慬獳∊‣祐桴湯䌭慬獳•਍# Python-Class-2
 
